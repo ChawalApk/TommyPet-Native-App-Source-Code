@@ -1,4 +1,4 @@
-#Pet Product – TommyPet Supplies
+# Pet Product – TommyPet Supplies
 
 Take your pet on a long walk with this 3-in-1 Collapsible Pet Travel Bowl. It's perfect for road trips, picnics and beach or near home activities. You'll have a handy water bowl in the car, while you're out exploring and when they need to drink at home as well! The collapsible design also serves as a carrying bolus, so you can take it with you anywhere!
 The 3-in-1 Collapsible TommyePet Germany Travel Bowl is made of durable silicone and BPA free plastics. It's dishwasher safe on the top rack. Large: 8.75" x 5.5" x 1.25", Medium: 6" x 4" x 1", Small: 4" x 1.5". Colors vary, but all bowl sizes come in Blue, Pink or Purple.
